@@ -116,7 +116,7 @@ Este questionário é a base do branding book e, depois, do site. Leva uns 25 mi
 
 **5.4** O que esses concorrentes fazem que vocês **não** querem parecer: ____
 
-**5.5** Complete: "Somos o único mason da região que ____."
+**5.5** Complete a frase "Somos o único mason da região que...": ____
 
 ---
 
